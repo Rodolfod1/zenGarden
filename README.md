@@ -1,2 +1,2 @@
 # zenGarden
- homework zengarden
+ refreshing ideas 
